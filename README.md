@@ -8,4 +8,4 @@
 - 🌱 I’m an rbi grade b aspirant who wants to have a good portfolio related to tech
 - 😄♂️ Pronouns: he/him
 - ⚡ Fun facts: building my portfolio now, my RBI office later 😁
-- another one: i design pixels by day, read economics ny night 😌
+- another one: i design pixels by day, read economics by night 😌
